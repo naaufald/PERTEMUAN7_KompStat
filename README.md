@@ -1,0 +1,1 @@
+# PERTEMUAN7_KompStat
